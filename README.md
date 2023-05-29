@@ -1,1 +1,0 @@
-# josecw.github.io
